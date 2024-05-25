@@ -1,4 +1,4 @@
-👋 Hi, I’m y-iss ⎚-⎚
+👋 Un gusto Isabel / y-iss ⎚-⎚
 
 
 <!---
