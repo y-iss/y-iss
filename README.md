@@ -3,7 +3,7 @@
 
 # <div align="center">                   ⎚-⎚ </div>
                                 
-# <div align="center">     🦝 ***Un gusto Isabel / y-iss*** </div>
+# <div align="center">      ***Un gusto y-iss*** 🦝 </div> 
 
 -------------------------------------------------------------------------
 
